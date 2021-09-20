@@ -1,0 +1,2 @@
+# tedikurnia
+ingin belajar
